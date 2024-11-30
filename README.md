@@ -1,4 +1,7 @@
 
+![4da29598e5ef7990b2d022dc777ca5c2](https://github.com/user-attachments/assets/c832586f-7327-4e93-9316-151c882d4d39)
+
+
 ![image53](https://github.com/user-attachments/assets/4f26c738-c7ff-4c20-ac72-de7b257908e8)![0842d751](https://github.com/user-attachments/assets/de190cd1-c7fb-4e58-9d9f-ed25f50f4b1c)
  𝖂𝖎𝖑𝖑 𝖞𝖔𝖚 𝖌𝖔 𝖙𝖔 𝖙𝖍𝖊 𝖊𝖓𝖉 𝖜𝖎𝖙𝖍 𝖒𝖊, 𝕸𝖞 𝖑𝖔𝖛𝖊𝖗?![3b603182](https://github.com/user-attachments/assets/e24f2ed6-ab7a-42f0-b2d4-885917c69a3d)
  ![image53](https://github.com/user-attachments/assets/4f26c738-c7ff-4c20-ac72-de7b257908e8) 
@@ -28,7 +31,6 @@
 I LOVE TO YAP!!! PLS BE MY FRIEND!![f7e2f182](https://github.com/user-attachments/assets/68c401ca-f895-4dde-ad84-0bb1398e8fb9)
 
 
-![8d9a95fae555bf113873b57b87155fa6](https://github.com/user-attachments/assets/9d452763-d672-4aee-8ef2-d2d9ca0a31a3)
 
 
 
