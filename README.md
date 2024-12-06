@@ -30,6 +30,7 @@
 > ![390f7516](https://github.com/user-attachments/assets/74019d42-ae8d-404c-973c-a6a5a4ea4b7b)
 I LOVE TO YAP!!! PLS BE MY FRIEND!![f7e2f182](https://github.com/user-attachments/assets/68c401ca-f895-4dde-ad84-0bb1398e8fb9)
 
+(i am not in the hh fandom nor support the creator!! i just really love lilith and eve^^)
 
 
 
