@@ -9,7 +9,7 @@
    hyunjin !  ﹕☆
 ㅤ         ﹟   she ·  herㅤׂ   ![6b8acad3](https://github.com/user-attachments/assets/6676aaa8-fd93-4d37-b343-21850a080b8c)
 
-   :  ☆  INTP !  ﹐≧ᗜ≦  ph + uk ! ![d3518818](https://github.com/user-attachments/assets/ea89ad53-aad3-42e0-a4a1-a7be020f1d63) 
+   :  ☆  INTP !  ﹐≧ᗜ≦  phillipines ! ![d3518818](https://github.com/user-attachments/assets/ea89ad53-aad3-42e0-a4a1-a7be020f1d63) 
 
 
  ![b0105ac9](https://github.com/user-attachments/assets/98303f1b-c17f-4ed7-bf8f-381dec3c62a1)
