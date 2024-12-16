@@ -13,7 +13,7 @@
 
 
  ![b0105ac9](https://github.com/user-attachments/assets/98303f1b-c17f-4ed7-bf8f-381dec3c62a1)
-   ୭ৎ    dont be afraid to ineract! ![a5f50325](https://github.com/user-attachments/assets/788012cc-e066-4947-8a4b-22d82878324c)
+   ୭ৎ    dont be afraid to interact! ![a5f50325](https://github.com/user-attachments/assets/788012cc-e066-4947-8a4b-22d82878324c)
   𝅄    ☆    ۪   ݁   𓈒 
 
   ㅤㅤ ۪      𝅄     ꒰  태형  ꒱    ۪   ݁  𝟷𝟷 : 𝟷𝟷   ݁   ۪    ୧
