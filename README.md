@@ -1,13 +1,5 @@
 
 
-![92a0c136425dc224d98dbc7f17e11ed2](https://github.com/user-attachments/assets/38269dab-0ac4-482f-bbfe-6c758749a1c2)
-
-
-
-
-![5b17c57e](https://github.com/user-attachments/assets/452d2d3b-bc01-4c9b-ad26-a5ec57171a99)
-
-
 
    ﹒ ![6df508f7](https://github.com/user-attachments/assets/dbdc6193-5eb5-4da7-bdf2-9d081e39c17a)
    hyunjin !  ﹕☆
